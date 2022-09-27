@@ -1,1 +1,1 @@
-# YVStu2.github.io
+# YVStu.github.io
